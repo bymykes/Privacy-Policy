@@ -1,0 +1,2 @@
+# Privacy-Policy
+Mate Bot
